@@ -10,10 +10,9 @@ You can contact me in the following ways:
 
 Summary:
 
-    I want to run as professional web developer as it also the first  
-step on the way my global goal. As an eager worker, I'm ready to  
-study and catch every moment to devote as much time as it's possible  
-to self-development and increased competitiveness.  
+I want to run as professional web developer as it also the first step on the way my global goal.  
+As an eager worker, I'm ready to study and catch every moment to devote as much time as it's  
+possible to self-development and increased competitiveness.
 
 Skills:
 
@@ -29,5 +28,4 @@ Education:
 
 English:
 
-    I've acquired the skill of speaking English at my university and at sources [Duolingo](https://www.duolingo.com/learn)
-and [Lingualeo](https://lingualeo.com/ru/?utm_source=ga&utm_medium=cpc&utm_campaign=ill0519GArunewu10t1i0&utm_content=genlnk&yagla=48050263&gclid=CjwKCAjw8ZHsBRA6EiwA7hw_sfQEKcuFfd4_A2dQoIRNfSfxal0nfuMnTWg4xAoOlE8V19z5prkuHxoCy_sQAvD_BwE)
+I've acquired the skill of speaking English at my university and at sources Duolingo and Lingualeo
